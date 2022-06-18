@@ -2,4 +2,5 @@ Selamlarr Dostlar Ben Ceren Bazıları Kız Yazılımcımı Olur Der o zaman erk
 
 Resimler ;
 
-![image](https://media.discordapp.net/attachments/982009622510575699/987491443293687840/unknown.png?width=665&height=218))]
+![image] !![image](https://media.discordapp.net/attachments/982009622510575699/987491443293687840/unknown.png?width=665&height=218))]
+![image] !https://media.discordapp.net/attachments/982009622510575699/987492008220299324/unknown.png?width=663&height=170
