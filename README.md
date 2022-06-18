@@ -7,4 +7,4 @@ Resimler ;
 ![image](https://media.discordapp.net/attachments/982009622510575699/987584071767036025/unknown.png?width=325&height=95)
 ![image](https://media.discordapp.net/attachments/982009622510575699/987491443293687840/unknown.png?width=665&height=218)
 ![image](https://media.discordapp.net/attachments/982009622510575699/987492008220299324/unknown.png?width=663&height=170)
-![image](https://media.discordapp.net/attachments/982009622510575699/987584472700579901/unknown.png?width=303&height=145))]
+![image](https://media.discordapp.net/attachments/982009622510575699/987584472700579901/unknown.png?width=303&height=145)
