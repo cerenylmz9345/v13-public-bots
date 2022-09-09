@@ -4,6 +4,7 @@ Eger Komut Eklersem Fotografta Koyarım
 
 📷 Fotoğraflar
 
+![image](https://cdn.discordapp.com/attachments/1005468405811396620/1017855310200832030/unknown.png)
 ![image](https://media.discordapp.net/attachments/982009622510575699/987580743670722591/unknown.png?width=355&height=103)
 ![image](https://media.discordapp.net/attachments/982009622510575699/987581913768263700/unknown.png?width=662&height=137)
 ![image](https://media.discordapp.net/attachments/982009622510575699/987584071767036025/unknown.png?width=325&height=95)
