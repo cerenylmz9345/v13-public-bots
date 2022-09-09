@@ -3,6 +3,7 @@ Selamlarr Dostlar Ben Ceren Bazıları Kız Yazılımcımı Olur Der o zaman erk
 Eger Komut Eklersem Fotografta Koyarım
 
 Kodları Alıp Altyapılarınızda Kullanıcagınızı Biliyorum Ama Arkadaşlar Lütfen Çalıp Çırpmayın Yani Yaptıgınız Saygısızlık Olur Olursada Onu Allaha Havale Ediyorum Saygılarla.
+
 📷 İmage
 
 ![image](https://cdn.discordapp.com/attachments/1005468405811396620/1017855310200832030/unknown.png)
