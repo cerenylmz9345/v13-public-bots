@@ -1,7 +1,6 @@
-Selamlarr Dostlar Ben Ceren Bazıları Kız Yazılımcımı Olur Der o zaman erkeklerde yapmasın işinize bakın ! v13 Public Bot Altyapısı Paylaşmak İstedim +10 Starda 5 Forkda Müthiş Altyapı Geliyor
+Selamlarr Dostlar Ben Ceren Bazıları Kız Yazılımcımı Olur Der o zaman erkeklerde yapmasın işinize bakın ! v13 Public Bot Altyapısı Paylaşmak İstedim +40 Starda 5 Forkda Müthiş Altyapı Geliyor 
 
-Eger Komut Eklersem Fotografta Koyarım
-
+Arkadaşlar Normalde +10 Stardı Ama Altyapıda Hatalar Oldugu İçin Zamana İhtiyacım Var O Yüzden Malesef 40 Starda Paylaşıcam Cidden Özür Dilerim :(
 Kodları Alıp Altyapılarınızda Kullanıcagınızı Biliyorum Ama Arkadaşlar Lütfen Çalıp Çırpmayın Yani Yaptıgınız Saygısızlık Olur Olursada Onu Allaha Havale Ediyorum Saygılarla.
 
 📷 İmage
