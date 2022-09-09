@@ -7,4 +7,4 @@ Kodları Alıp Altyapılarınızda Kullanıcagınızı Biliyorum Ama Arkadaşlar
 📷 İmage
 
 ![image](https://cdn.discordapp.com/attachments/1005468405811396620/1017855310200832030/unknown.png)
-
+![image](https://cdn.discordapp.com/attachments/1005468405811396620/1017868780292022282/unknown.png)
