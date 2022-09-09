@@ -9,3 +9,5 @@ Kodları Alıp Altyapılarınızda Kullanıcagınızı Biliyorum Ama Arkadaşlar
 ![image](https://cdn.discordapp.com/attachments/1005468405811396620/1017855310200832030/unknown.png)
 ![image](https://cdn.discordapp.com/attachments/1005468405811396620/1017873719894487120/unknown.png)
 ![image](https://cdn.discordapp.com/attachments/1005468405811396620/1017873761539739728/unknown.png)
+![image](https://cdn.discordapp.com/attachments/1005468405811396620/1017877426753261659/unknown.png)
+
